@@ -1,1 +1,0 @@
-# sesac-midterm-kimyeonjun
